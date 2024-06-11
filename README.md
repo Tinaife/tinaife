@@ -11,4 +11,4 @@ I clean, transform, and analyse data for business insights.
 - 🤔 I’m looking for help with with Internship.
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/ifeanyi-oweh-721025ba/)
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
+- ⚡ Contact [Gmail](chommyx1@gmail.com)
